@@ -1,4 +1,4 @@
-
+Experience dayz aim like never before with dayz aim custom Scripts - instant item equip and auto-inventory sorter, the #1 scripts. Includes instant item equip and auto-inventory
 
 
 
